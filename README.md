@@ -1,1 +1,1 @@
-💟 avatar courtesy of Google.
+💟 Avatar courtesy of Google
